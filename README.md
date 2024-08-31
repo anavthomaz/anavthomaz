@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @anavthomaz
+- 👋 Hey, Ana aqui!
 - 😄 Pronouns:She/Her
 
 
